@@ -1,0 +1,1 @@
+# Glosario-de-T-rminos-T-cnicos-en-Inform-tica
